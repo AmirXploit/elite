@@ -1,0 +1,2 @@
+# elite
+Jangan ngerecode bangsat
